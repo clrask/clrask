@@ -1,0 +1,1 @@
+- hey! i'm @clrask. i'm new at coding and i just created this acc. i'm currently learning Javascript and HTML :)
